@@ -1,0 +1,1 @@
+# GA_Strings_Ishak
